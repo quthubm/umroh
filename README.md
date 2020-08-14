@@ -5,9 +5,9 @@ Umrah adalah salah satu momen paling menguntungkan dalam hidup setiap Muslim unt
 
 Dia juga menyebutkan: Melakukan umrah di bulan Ramadhan, sama bermanfaatnya dengan melakukan haji bersama saya. Umrah selama Ramadhan adalah ibadah utama.
 
-Umrah dapat dilakukan sepanjang tahun, namun tampil selama Ramadhan dianggap paling suci dari semuanya. Umrah memakan waktu sekitar tiga jam, dan siapa pun yang ingin melakukan umrah dengan cara yang lebih nyaman, kami sarankan untuk melakukan umrah selama musim sepi di Makkah dan Madinah, yang biasanya tidak terlalu ramai. Ini akan memungkinkan para peziarah untuk beribadah lebih nyaman.
+Umrah dapat dilakukan sepanjang tahun, namun tampil selama Ramadhan dianggap paling suci dari semuanya. Umrah memakan waktu sekitar tiga jam, dan siapa pun yang ingin melakukan umrah dengan cara yang lebih nyaman, kami sarankan untuk melakukan umrah selama musim sepi di Makkah dan Madinah, yang biasanya tidak terlalu ramai. Ini akan memungkinkan para peziarah untuk beribadah lebih nyaman. simak pemaparan dari biro [umroh jogja](https://hasuna.co.id/paket-umroh/) 
 
-##Ihraam
+## Ihraam
 
 Mandi: Mandi sangatlah penting dan suci sebelum memulai Ihraam.
 Pakaian: Pria dihiasi dengan pakaian putih, melilit pinggang.
@@ -26,7 +26,7 @@ Wisatawan yang tak terhitung jumlahnya datang dengan penerbangan ke Jeddah. Tanp
 
 LabbaykAllahummaLabbayk, LabbaykaLaaShareekaLakaLabbayk, InnalHamda Wan-ni 'mataLakaWalMulkLaaShareekaLak
 
-Memasuki Masjid al-Haraam
+## Memasuki Masjid al-Haraam
 
 Memasuki Masjid dari BaabBaniShaibah disarankan. Memasuki masjid dengan kaki kanan harus didekati dengan kata-kata berikut:
 
@@ -36,7 +36,7 @@ Melihat Kabah, Anda harus mengangkat tangan dan mengucapkan doa:
 
 Allaahummaantas salaam, waminkas salaam, fahayyinaarabbanaabis salaam
 
-##Melakukan Tawaaf
+## Melakukan Tawaaf
 
 Saat melakukan Tawaaf, Anda langsung menuju ke Hajar Aswad dan membaca: Allahu Akbar. Kemudian dilanjutkan dengan menyentuh Hajar Aswad, menciumnya dan melakukan Sajdah. Namun, jika Anda tidak bisa tampil, Anda harus mengarahkan ke Hajar Aswad dengan tangan kanan. Ritual ini dilakukan pada permulaan setiap Tawaaf.
 
@@ -59,7 +59,8 @@ Ikuti Zam-Zam dengan meminum air dan disiram di atas kepala.
 Kembali ke batu hitam dan sentuh dengan mengatakan:
 
 Allaahu Akbar
-SA'EE
+
+## SA'EE
 
 Pemberhentian selanjutnya adalah Safa. Saat mencapai Safa, seseorang harus membaca:
 
@@ -81,4 +82,4 @@ Ini penyelesaian babak pertama, sekarang lanjutkan ke Safa. Ulangi seluruh ritua
 
 Dianjurkan untuk memotong atau mencukur kepala. Wanita juga harus memendekkan rambutnya, bahkan sedikit.
 
-Makanya, Umrah selesai.
+Makanya, [umroh](https://hasuna.co.id/pengertian-umroh-syarat-dan-hukumnya/)  selesai.
